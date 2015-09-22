@@ -1,3 +1,3 @@
 # GroupExercise
-![alt tag](http://imgs.xkcd.com/comics/random_number.png)
+![alt tag](http://assets.amuniversal.com/1760e77027e60133fee0005056a9545d)
 
